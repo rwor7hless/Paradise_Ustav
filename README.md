@@ -1,1 +1,0 @@
-# Paradise_Ustav
